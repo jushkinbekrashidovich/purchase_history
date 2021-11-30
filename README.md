@@ -1,3 +1,3 @@
-Not finished
+Project is not finished yet.
  
  
